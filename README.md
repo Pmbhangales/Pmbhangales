@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **prathameshmb1569@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YmrGYo0shUo-OuWIMQ27tbb7PiiBGsLo/view?usp=sharing](https://drive.google.com/file/d/1YmrGYo0shUo-OuWIMQ27tbb7PiiBGsLo/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YmrGYo0shUo-OuWIMQ27tbb7PiiBGsLo/view?usp=sharing](https://www.linkedin.com/in/prathamesh-bhangale-8aa4a3250/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
