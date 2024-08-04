@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Prathamesh Mahesh Bhangale</h1>
-<h3 align="center">Pre-final year CSE student at Vellore Institute of Technology</h3>
+<h3 align="center">Final year CSE student at Vellore Institute of Technology</h3>
 
 - 🔭I’m currently pursuing **B.Tech degree in CSE with Information Security from Vellore Institute of Technology**
 
